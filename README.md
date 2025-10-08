@@ -13,3 +13,6 @@ https://docs.google.com/document/d/1nefS_T2zxws9ahAw4WhI1m7xnQswVGlH6SUdeZW3maE/
 
 ### Customer Brief Notes Summary (Hux)
 https://docs.google.com/document/d/1zVI7KV-4z7WfSw-ppdQfvINaTa6foHvixx7xmgziPoU/edit?usp=sharing
+
+### Refined and analysed customer brief transcript
+https://docs.google.com/document/d/14ipl_7XwUrfqLkRuuWHkuxb77QpD1bh-yUbrubL6ZLs/edit?usp=sharing
